@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on 
 - 🤔 I’m looking for help with finding job opportunities
 - 💬 Ask me about anything
-- 📫 How to reach me: Instagram - @kookieonfire
+- 📫 How to reach me: [Instagram - @kookieonfire](https://www.instagram.com/kookieonfire/?hl=en)
 - 😄 Pronouns: He
 - ⚡ Fun fact: I am an airplane pilot 
